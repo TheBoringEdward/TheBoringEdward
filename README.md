@@ -1,4 +1,4 @@
-There isn't anything to say about me so I'll just cue my standart introductory:
+There isn't much to say about me, so I'll just queue my standart introduction:
 -
 Hopeless Idiot - Questionable ideas and self-destructive thinking since 2017.
 <!---
